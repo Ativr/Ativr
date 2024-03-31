@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ativr
 - 👀 I’m interested in writing code and listening music
 - 🌱 I’m currently learning :python
-- 💞️ I’m looking to collaborate on :no
+- 💞️ I’m looking to collaborate on : www.bilibili.com in China🇨🇳
 - 📫 How to reach me:no
 - 😄 Pronouns:Never gonna give you up
 - ⚡ Fun fact:Don't look behind you.
